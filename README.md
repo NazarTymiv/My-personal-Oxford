@@ -1,1 +1,0 @@
-# NazarTymiv.github.io
